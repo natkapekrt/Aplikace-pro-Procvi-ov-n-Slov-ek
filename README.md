@@ -1,0 +1,1 @@
+# Aplikace-pro-Procvi-ov-n-Slov-ek
